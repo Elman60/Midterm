@@ -1,0 +1,1 @@
+Menu items from - https://check24.ge/ka/gastronomy/52
